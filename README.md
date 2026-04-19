@@ -1,2 +1,2 @@
-# Actividad-argentina-en-la-Ant-rtida-bases-y-destacamentos
+# Actividad-argentina-en-la-Antártida-bases-y-destacamentos
 Las muchas referencias que podrían hacerse a la presencia argentina en los Mares del Sur y en las tierras antárticas es el inicio de Luis Piedra buena que con el correr del tiempo se convertirá en un famoso pionero de la actividad argentina en esos lugares. Su primer viaje lo hizo siendo aún adolescente con William G. Smiley en 1848. Pero tal vez la más antigua de las expediciones que tuvieron relevancia oficial tuvo lugar en 1881, época en que «aunque en forma latente, existía una cierta conciencia argentina sobre nuestros intereses antárticos”. 
